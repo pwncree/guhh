@@ -20,7 +20,7 @@
   <img src="s2.png" height="50"> ── ✧ OTHER ✧ ── <img src="s3.png" height="50">
     </p>
 <p align="center">
-    for those reading this maybe you could send a nice message on my <a href="https://pawncore.atabook.org">atabook</a> 🤔
+    for those reading this maybe you could send a nice message on my <a href="https://guideofdreamland.atabook.org">atabook</a> 🤔 ☆ (nobody doing it😂😭)
 </p>
 <p align="center">
   <img src="s.png" height="130" width="90%">
