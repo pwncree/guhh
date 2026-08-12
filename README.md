@@ -4,6 +4,8 @@
 <p align="center">
   <img src="ezgif-312257d78073f18e.webp" alt="Cookie Run Dreamweaver" width="30%">
 </p>
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=9&pause=2000&color=b57a64&center=true&width=900&height=100&lines="+--☆+If+you+wish+to+wake%2C+follow+the---!+The+exit+is---!;"---Will---u---rememb---what+I---said+about---%3F;"---you---wi---wake---up---from---)](https://git.io/typing-svg)
 <p align="center">
   <img src="6.png" height="130" width="90%">
 </p>
@@ -28,6 +30,8 @@
 <p align="center">
   <img src="d1.png" width="30%">
 </p>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&pause=2000&color=B57A64&center=true&width=1200&height=120&lines="+--☆+Dream+paths%2C+they+go+wherever+your+imagination+takes+them.+";"--☆Don%27t+worry%2C+I%27ll+always+be+here...++Promise+you%27ll+visit+again!+";"+--☆+Peek+deep+into+a+dream%2C+and+you+might+find+what+your+heart+wishes+for...+";"+--☆+Dreams+flow+freely+into+one+another.+That+means+I+can%27t+be+stopped...+")](https://git.io/typing-svg)
 <p align="center">
   <img src="b4.png" width="100%">
 </p>
