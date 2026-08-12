@@ -5,7 +5,7 @@
   <img src="ezgif-312257d78073f18e.webp" alt="Cookie Run Dreamweaver" width="30%">
 </p>
 <p align="center">
-  <img src="s.png" height="130" width="90%">
+  <img src="6.png" height="130" width="90%">
 </p>
 <p align="center">
 ˚ ༘ ೀ⋆｡˚ heya ! ' im an aromantic introvert who goes by all pronouns, my primary names are either spit, cree or zhel, but you can choose any other nickname for me, i wont mind :P ! i often sit in the cookie run area or nearby spawn in safe server #1/#2˚ ༘ ೀ⋆｡˚
@@ -23,7 +23,7 @@
     for those reading this maybe you could send a nice message on my <a href="https://guideofdreamland.atabook.org">atabook</a> 🤔 ☆ (nobody doing it😂😭)
 </p>
 <p align="center">
-  <img src="s.png" height="130" width="90%">
+  <img src="6.png" height="130" width="90%">
 </p>
 <p align="center">
   <img src="d1.png" width="30%">
