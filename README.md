@@ -23,6 +23,7 @@
     </p>
 <p align="center">
     for those reading this maybe you could send a nice message on my <a href="https://guideofdreamland.atabook.org">atabook</a> 🤔 ☆ (nobody doing it😂😭)
+  my discord user is .solweon,though i dont use the app much..gulp
 </p>
 <p align="center">
   <img src="6.png" height="130" width="90%">
