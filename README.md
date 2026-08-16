@@ -16,7 +16,7 @@
   <img src="s2.png" height="50"> ── ✧ BYI ✧ ── <img src="s3.png" height="50">
     </p>
 <p align="center">
-  --☆ i have social anxiety and tend to get very socially awkward,along with hesitating A LOT when wanting to send a messge that i'm afraid will land in the wrong spot or doing an action,im also trying my best to manage my black and white thoughts and trying not to assume the worst,which is what makes me very self protective,i often like deep connection but im also okay with surface connections/conversations,but im not usually the person to start those conversations,preferably if any or all of this bothers you or you dont want to deal with any of this i really recommend you to not interact at all ;( . Anyways this is all to be aware of,i hope i didnt miss anything.. --☆
+  --☆ i have social anxiety and tend to get very socially awkward,along with hesitating A LOT when wanting to send a messge that i'm afraid will land in the wrong spot or doing an action,im also trying my best to manage my black and white thoughts and trying not to assume the worst,which is what makes me very self protective,i might also struggle to show my actual feelings through text,so if i seem flat,its just because i dont know how i can correctly translate those into words. i often like deep connection but im also okay with surface connections/conversations,but im not usually the person to start those conversations,preferably if any or all of this bothers you or you dont want to deal with any of this i really recommend you to not interact at all ;( . Anyways this is all to be aware of,i hope i didnt miss anything.. --☆
 </p>
 <p align="center">
   <img src="s2.png" height="50"> ── ✧ OTHER ✧ ── <img src="s3.png" height="50">
