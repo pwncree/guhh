@@ -36,5 +36,3 @@
 <p align="center">
   <img src="b4.png" width="100%">
 </p>
-
-  
