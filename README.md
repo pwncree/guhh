@@ -10,7 +10,7 @@
   <img src="6.png" height="130" width="90%">
 </p>
 <p align="center">
-˚ ༘ ೀ⋆｡˚ heya ! ' im an aromantic introvert who goes by all pronouns, my primary names are either spit, cree or zhel, but you can choose any other nickname for me, i wont mind :P ! i often sit in the cookie run area or nearby spawn in safe server #1/#2˚ ༘ ೀ⋆｡˚
+˚ ༘ ೀ⋆｡˚ heya ! ' im an aromantic introvert who goes by all pronouns, my primary names are either sol, cree or zhel, but you can choose any other nickname for me, i wont mind :P ! i often sit in the cookie run area or nearby spawn in safe server #1/#2˚ ༘ ೀ⋆｡˚
 </p>
 <p align="center">
   <img src="s2.png" height="50"> ── ✧ BYI ✧ ── <img src="s3.png" height="50">
